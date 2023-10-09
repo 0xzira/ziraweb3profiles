@@ -1,1 +1,1 @@
-# ziraweb3profiles
+# zira web3 profiles
